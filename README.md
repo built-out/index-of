@@ -1,2 +1,2 @@
 - Hi it's me reyhan jr
-- explore more about me gravatar.com/orgsowner and https://about.me/organization_owner
+- explore more about me https://gravatar.com/orgsowner and https://about.me/organization_owner
